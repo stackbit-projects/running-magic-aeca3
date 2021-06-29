@@ -1,5 +1,5 @@
 ---
-title: 'Fox Village In JapanThe '
+title: The only way out is through
 subtitle: >-
   Apparently, Japan is covered in magical and irresistibly cute animal
   sanctuaries.
